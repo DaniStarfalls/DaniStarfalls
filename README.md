@@ -1,5 +1,5 @@
 # Hi, I'm DaniStarfalls! 💫
-I'm a person constantly trying to be creative, looking to share their potential work on the Internet as it is one of the places I've found most helpful to share work with and improve.
+I'm a creative person always exploring new ideas and sharing my work online. The internet has been one of the most helpful spaces for me to grow and improve through sharing and feedback.
 
 ---
 
